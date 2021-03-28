@@ -1,4 +1,4 @@
-👋 Hi, I’m Adrian (@abrpuzzle)<br>
+👋 Hi, I’m @abrpuzzle<br>
 🚦 I’m an IT Project Manager at @puzzle<br>
 📖 I enjoy reading Books and sharing ideas<br>
 
